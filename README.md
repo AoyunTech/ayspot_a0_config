@@ -1,0 +1,1 @@
+# ayspot_a0_config
